@@ -1,6 +1,8 @@
-<p align=center>remember to love others and yourself.</p>
-<p align=center>i go by john grace or erick. sinner also works.</p>
-<p align=center>he/they . catholic && transmasculine</p>
+<p align=center>I'm a person, please be nice.</p>
+
+<p align=center>i go by john grace or joni. sinner also works.</p>
+<p align=center>he/they . christian transmale && aromantic mlm</p>
+<p align=center>do u know..?? the shepherdis my husband ok BYe.</p>
 <p align=center>matthew 6:14-15</p>
 
 <p align="center">
